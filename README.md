@@ -18,7 +18,7 @@ I have an unique ability to <b>alter time and see the future outcomes</b>, so th
 - Posses white magic knowledge
 - Trained in martial art skills
 
-<center> ![](https://imagesvc.meredithcorp.io/v3/mm/image?url=https%3A%2F%2Fewedit.files.wordpress.com%2F2016%2F10%2Fdr-strange.jpg&w=400&c=sc&poi=face&q=85)
-> Long live the universe!
+Attached with this is my [Resume](https://www.marvel.com/movies/doctor-strange) (LOL), you anyways wouldn't be needing it coz I'll be there if I need to be there.
 
-### So Long!
+<center> ![](https://imagesvc.meredithcorp.io/v3/mm/image?url=https%3A%2F%2Fewedit.files.wordpress.com%2F2016%2F10%2Fdr-strange.jpg&w=400&c=sc&poi=face&q=85)
+
